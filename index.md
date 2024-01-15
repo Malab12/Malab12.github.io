@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+I have long since had thoughts consuming my attention which demanded an outlet. This is going to be an attempt at that. What is going to be the content here? Anything and everything which comes to my mind. Is there going to be any semblence of routine to the stuff here? Absofuckinglutely not. It is called unhinged ramblings and thoughts after all. This is me formalizing the process of shouting in the void. 
